@@ -1,1 +1,1 @@
-https://h-akim.github.io/Registration-Form_V/
+https://h-akim.github.io/Registration-Form_VI/
